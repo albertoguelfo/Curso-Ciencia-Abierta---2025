@@ -1,1 +1,1 @@
-# Curso-Ciencia-Abierta---2025
+Contenido descriptivo de prueba para tarea 1
